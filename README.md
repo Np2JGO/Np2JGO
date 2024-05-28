@@ -12,5 +12,5 @@
 
 @NaomiPaula
 
-![]()
-https://media.tenor.com/qdRohk9GWeAAAAAM/chanyeol-dog.gif
+
+![Uploading chanyeol-dog.gif…]()
