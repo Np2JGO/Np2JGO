@@ -1,7 +1,16 @@
-### boas vindas ao meu perfil 💤
+### Boas vindas ao meu perfil 💤
 
- meu nome é naomi 
+ Meu nome é Naomi 
 
-  - estou estudando alura
-  - estou com sono
-  -  ultlizo esse espaço oara minha organização e compartilhamento os meu projetos desenvolvido
+  - Estou estudando alura
+  - Estou com sono
+  -  Ultlizo esse espaço oara minha organização e compartilhamento os meu projetos desenvolvido
+
+### Você entra em contato comigo 📫 
+
+00001075139995sp@al.educacao.sp.gov.br
+
+@NaomiPaula
+
+![]()
+https://media.tenor.com/qdRohk9GWeAAAAAM/chanyeol-dog.gif
